@@ -10,4 +10,3 @@
 
 Контакты
 -  Email: vt.vd_barchenkov@mpt.ru
--  LinkedIn: https://t.me/IIIYTTTTXXXT
